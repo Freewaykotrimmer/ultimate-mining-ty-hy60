@@ -1,4 +1,4 @@
-#  
+#  best anime card collection Script offers the most advanced anime card collection Script, with auto-collect and auto-farm. Perfect for dominating any
 
 
 
